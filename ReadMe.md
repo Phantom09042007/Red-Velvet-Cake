@@ -1,0 +1,2 @@
+Red velvet cake is a classic American dessert, but it’s becoming more and more popular outside of the US, and for a good reason – it’s so festive and delicious.
+A combination of ingredients such as vinegar, red food coloring, cocoa powder and buttermilk is what makes this cake so unique. It’s easy to make, as well.
